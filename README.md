@@ -1,6 +1,7 @@
+<img align="right" src="https://visitor-badge.laobi.icu/badge?page_id=ckyy-beep.ckyy-beep" />
+
 ### Hi there 👋
 
-<img align="right" src="https://visitor-badge.laobi.icu/badge?page_id=ckyy-beep.ckyy-beep" />
 
 
 
